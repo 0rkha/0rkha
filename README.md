@@ -2,9 +2,11 @@
 let me introduce my self 🤔
 
 i'm a Korean 🇰🇷 and high school student(yet) 😅
+
 and i usally develop AI applications 🤖
 
 i'll show you something awsome step by step 👍
+
 plz look forward to next projects! 🙂
 
 
