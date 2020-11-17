@@ -1,5 +1,4 @@
 ### Hi there 👋
-let me introduce my self 🤔
 
 i'm a Korean 🇰🇷 and high school student(yet) 😅
 
