@@ -1,12 +1,12 @@
 ### Hi there 👋
 
-i'm a Korean 🇰🇷 and high school student(yet) 😅
+I'm a Korean 🇰🇷 and high school student(yet) 😅
 
-and i usally develop AI applications 🤖
+And i usally develop AI applications 🤖
 
-i'll show you something awsome step by step 👍
+I'll show you something awsome step by step 👍
 
-plz look forward to next projects! 🙂
+Plz look forward to next projects! 🙂
 
 
 <!--
