@@ -1,11 +1,5 @@
 ### Hi there 👋
 
-I'm a Korean 🇰🇷 and high school student(yet) 😅
-
-And i usally develop AI applications 🤖
-
-I'll show you something awsome step by step 👍
-
 Plz look forward to next projects! 🙂
 
 
