@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Plz look forward to next projects! 🙂
+Plz look forward to next projects! 😎
 
 
 <!--
